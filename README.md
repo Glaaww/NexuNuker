@@ -3,4 +3,4 @@ NexuNuker is a highly optimized, multi-functional Discord bot designed to execut
 
 
 # NOTE
-SKIDDERS MAA CHUDAO NUKERS HAVEN ON TOP 
+SKIDDERS MAA CHUDAO NUKERS CORD TERRITORY ON TOP 
